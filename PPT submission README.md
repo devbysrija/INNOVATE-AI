@@ -48,6 +48,6 @@ Please carefully read these instructions to ensure your submission is valid and 
 
 ## ❓ Need Help?
 
-If you encounter any issues or have questions about the submission process, contact the organizing team at: [your-email@domain.com]
+If you encounter any issues or have questions about the submission process, ask your doubts in the whatsapp grp itself.
 
 **Thank you for your participation! Good luck with your showcase.**
